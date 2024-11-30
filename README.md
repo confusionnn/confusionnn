@@ -4,17 +4,17 @@
 
 ![div](https://64.media.tumblr.com/e9e301b509f4f80141a8a0ccbfdc6493/c66445df1a34b26b-73/s400x600/bc3fcc11a87d878d93f51e87b6346e64ca93c3a1.pnj)
 
-100% Gay, Very Australian. He/him. 
+he/him, gay, australian
 
-Still in school, though by the time i'm writing this i'm currently on my summer break (southern hemisphere). 
+Still in School !! (Currently on break/about to be)
 
-I have an [ATA](https://confusionnn.atabook.org/) you can sign! I'm almost always checking it >;)
+I have an [ATA](https://confusionnn.atabook.org/) Feel free to sign it! Also have a discord, though unless we're close I won't accept friend requests; confusionnn_    
 
 ![div](https://64.media.tumblr.com/e9e301b509f4f80141a8a0ccbfdc6493/c66445df1a34b26b-73/s400x600/bc3fcc11a87d878d93f51e87b6346e64ca93c3a1.pnj)
 
-Feel free to interact! Whispers are welcome but not needed if you can't be bothered. 
+Feel free to interact w/ me. If I don't respond, leave me a whisper so I can tell you've spoken to me !! 
 
-I have only the [Basic DNI's](https://basic-dni.crd.co/) (click to see them all). If you can't follow these please DNI or be *very* cautious when interactng outside of small talk.
+I have only the [Basic DNI's](https://basic-dni.crd.co/) (click to see them all). If you can't follow these please DNI unless I int with you first
 
 ![div](https://64.media.tumblr.com/e9e301b509f4f80141a8a0ccbfdc6493/c66445df1a34b26b-73/s400x600/bc3fcc11a87d878d93f51e87b6346e64ca93c3a1.pnj)
 
