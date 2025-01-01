@@ -4,7 +4,9 @@
 ## links/other places!
 [ATA Book! Sign it here!](https://confusionnn.atabook.org/)
 
-im under 'confusionnn' or 'confusionnn_' for most places. 
+disc: confusionnn_
+
+im under 'confusionnn' or 'confusionnn_' for most other places too!
 
 
 ## abt me!
