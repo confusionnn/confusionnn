@@ -19,7 +19,7 @@ I'm very confrontational and will stand up for ppl, if you have a problem with t
 ## int/dni/fandoms/characters
 > int: 14 or above, apart of any fandoms (look below) i'm in, friends from other socials. mostly anyone can int
 
-> dni: >14, hh/hb, coffin of andy & leyley fans (or any proshippers for matter of fact), eddsworlds, overly sexual serious people, anti-palenstine/pro-israel, diddy's world fans, fake systems (no i wont be calling anyone out. if you know your faking it please just dni but if your not faking your welcome to interact.) There'll be more to this list as the time goes, this is just what I remember.
+> dni: >14, no hh/hb or tcooal or dw. basic dnis too please ffs
 
 > Fandoms (Bold = currently into): ***CoD*** - Esp BO:CW & OG MW's, ***Overwatch***, Marvel - Venom & DeadPool, Arcane, JJK.
 
