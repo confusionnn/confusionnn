@@ -1,5 +1,5 @@
 ![top div](https://64.media.tumblr.com/7b0fd456cd4e2a5d45c01f65e3cd8edc/9f2599789edac1b9-c9/s1280x1920/80b6fc6d47bf2d70dce78aaf1387356b6998d48a.pnj)
-# coni/confusionnn
+# number 1 cpt mactavish rider
 ![div](https://64.media.tumblr.com/00c0d597c774e27cc335278b13b8b916/9f2599789edac1b9-9f/s1280x1920/101afbced8c70ddd0ec8228a3276708d0901da24.pnj)
 
 
@@ -10,11 +10,29 @@ Australian / AEST.
 
 In Highschool, currently on Summer Holidays as of now
 
+He/him ~ cisgender + gay
+
+I'm very confrontational and will stand up for ppl, if you have a problem with that or with me in general ignore/hide/block idm
+
+
+
+## int/dni/fandoms
+> int: 14 or above, apart of any fandoms (look below) i'm in, friends from other socials. mostly anyone can int
+
+> dni: >14, hh/hb, coffin of andy & leyley fans (or any proshippers for matter of fact), eddsworlds, overly sexual serious people, anti-palenstine/pro-israel, diddy's world fans, fake systems (no i wont be calling anyone out. if you know your faking it please just dni but if your not faking your welcome to interact.) There'll be more to this list as the time goes, this is just what I remember.
+
+> Fandoms (Bold = currently into): **CoD** - Esp BO:CW & OG MW's, **Overwatch**, Marvel - Venom & DeadPool, Arcane, JJK.
+
+There'll be more to this list as the time goes, this is just what I remember.
+
+
 
 ## links/other places!
 [ATA Book! Sign it here!](https://confusionnn.atabook.org/)
 
-disc: confusionnn_
+[Please help Ashraf's family escape Palenstine](https://www.gofundme.com/f/please-help-my-family-escape-gaza-for-australia)
+
+disc: @confusionnn_
 
 im under 'confusionnn' or 'confusionnn_' for most other places too!
 
