@@ -4,6 +4,11 @@
 
 
 ## abt me!
+coni/confusionnn
+
+Australian / AEST. 
+
+In Highschool, currently on Summer Holidays as of now
 
 
 ## links/other places!
