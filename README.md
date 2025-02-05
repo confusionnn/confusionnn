@@ -8,35 +8,12 @@ coni/confusionnn
 
 Australian / AEST. 
 
-In Highschool, currently on Summer Holidays as of now
-
 He/him ~ cisgender + gay
 
-I'm very confrontational and will stand up for ppl, if you have a problem with that or with me in general ignore/hide/block idm
-
-
-
-## int/dni/fandoms/characters
-> int: 14 or above, apart of any fandoms (look below) i'm in, friends from other socials. mostly anyone can int
-
-> dni: >14, no hh/hb or tcooal or dw. basic dnis too please ffs
-
-> Fandoms (Bold = currently into): ***CoD*** - Esp BO:CW & OG MW's, ***Overwatch***, Marvel - Venom & DeadPool, Arcane, JJK.
-
-> Characters I obsess over: ***John Mactavish - COD (OG/Reboot)***, Phillip Graves - CODMW, Russell Adler - COD:BO, Venom/Eddie Brock
-
-There'll be more to this list as the time goes, this is just what I remember.
-
-
+I'm very confrontational and will stand up for ppl, if you have a problem with that or with me in general ignore/hide/block idc
 
 ## links/other places!
 [ATA Book! Sign it here!](https://confusionnn.atabook.org/)
-
-[Please help Ashraf's family escape Palenstine](https://www.gofundme.com/f/please-help-my-family-escape-gaza-for-australia)
-
-disc: @confusionnn_
-
-im under 'confusionnn' or 'confusionnn_' for most other places too!
 
 
 ![div](https://64.media.tumblr.com/00c0d597c774e27cc335278b13b8b916/9f2599789edac1b9-9f/s1280x1920/101afbced8c70ddd0ec8228a3276708d0901da24.pnj)
