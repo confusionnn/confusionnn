@@ -29,7 +29,7 @@ General Media:
 
 ![div](https://64.media.tumblr.com/00c0d597c774e27cc335278b13b8b916/9f2599789edac1b9-9f/s1280x1920/101afbced8c70ddd0ec8228a3276708d0901da24.pnj)
 
-![whitaker](<img width="736" height="736" alt="image" src="https://github.com/user-attachments/assets/6bb3550a-4685-4486-b77e-26dc74f95de5" />)
+![whitaker](https://i.pinimg.com/736x/c3/a3/ef/c3a3efa06e4cbff9c3be9ce5a92c87de.jpg)
 
 
 ![bottom div](https://64.media.tumblr.com/34bfce253921e8c8ee9323f6e0fae52e/9f2599789edac1b9-f7/s1280x1920/2d40a3cc976ba5b69cf2dd18bee7b72b6a1d2689.pnj)
