@@ -28,6 +28,7 @@ General Media:
 ## links/other places!
 [ATA Book! Sign it here!](https://confusionnn.atabook.org/)
 
+
 ![stamp1](https://nustuff.carrd.co/assets/images/gallery28/894f5f7f.gif?v=0a15e1db) ![stamp2](https://nustuff.carrd.co/assets/images/gallery24/17880ae3.gif?v=0a15e1db) ![3](https://nustuff.carrd.co/assets/images/gallery15/adaef9c8.png?v=0a15e1db) ![4](https://nustuff.carrd.co/assets/images/gallery24/a80c55f0.gif?v=0a15e1db) ![5](https://supplies.ju.mp/assets/images/gallery01/09d7254c_original.png?v=1c1ba870) ![6](https://supplies.ju.mp/assets/images/gallery09/c611ce54_original.png?v=1c1ba870) ![7](https://supplies.ju.mp/assets/images/gallery01/3468f611_original.png?v=1c1ba870)
 ![div](https://64.media.tumblr.com/00c0d597c774e27cc335278b13b8b916/9f2599789edac1b9-9f/s1280x1920/101afbced8c70ddd0ec8228a3276708d0901da24.pnj)
 
