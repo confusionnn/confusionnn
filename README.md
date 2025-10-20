@@ -20,7 +20,7 @@ Roblox:
 **Dandy's World**, **Blocktales**, **Combat Initation**, **Pressure**, Asym Games (Forsaken, Pwned1400, Die of Death), SEWH, Databrawl, Phighting, Grace
 
 Other Games:
-**Call of Duty (OG MW)**, Sims 4, Stardew Valley, Undertale/Deltarune, Hollowknight, Portal 1/2, Overwatch
+**Call of Duty (OG MW)**, Sims 4, Stardew Valley, Undertale/Deltarune, Hollowknight, Portal 1/2, Overwatch, Minecraft
 
 General Media:
 **The Pitt**, Abbott Elementary, JJK, Much More I can't remember
@@ -28,7 +28,7 @@ General Media:
 ## links/other places!
 [ATA Book! Sign it here!](https://confusionnn.atabook.org/)
 
-
+![stamp1](https://nustuff.carrd.co/assets/images/gallery15/adaef9c8.png?v=0a15e1db) ![stamp2]() ![3]() ![4]() ![5]() ![6]() ![](7)
 ![div](https://64.media.tumblr.com/00c0d597c774e27cc335278b13b8b916/9f2599789edac1b9-9f/s1280x1920/101afbced8c70ddd0ec8228a3276708d0901da24.pnj)
 
 ![whitaker](https://i.pinimg.com/736x/c3/a3/ef/c3a3efa06e4cbff9c3be9ce5a92c87de.jpg)
